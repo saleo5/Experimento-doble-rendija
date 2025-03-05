@@ -1,4 +1,4 @@
-Experimento de lo clasico a lo cuantico Autor: Samuel Leonardo Albarracin Vergara
+Experimento de lo clasico a lo cuantico Autor: Samuel Leonardo Albarracin Vergara, Kevin Jair Segura Velandia
 
 Experimento de la doble rendija Resumen del experimento de la doble rendija
 
